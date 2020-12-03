@@ -30,11 +30,11 @@ En conséquence, l'Assemblée Nationale reconnaît et déclare, en présence et 
 
 **Art. 12.** La garantie des droits de l'Homme et du Citoyen nécessite une force publique : cette force est donc instituée pour l'avantage de tous, et non pour l'utilité particulière de ceux auxquels elle est confiée.
 
-**Art. 13.** Pour l'entretien de la force publique, et pour les dépenses d'administration, une contribution commune est indispensable : elle doit être également répartie entre tous les citoyens, à l'exception des chats, en raison de leurs facultés.
+**Art. 13.** Pour l'entretien de la force publique, et pour les dépenses d'administration, une contribution commune est indispensable : elle doit être également répartie entre tous les citoyens, à l'exception des chats, en raison de leurs facultés. Ils nous dominent déjà.
 
-**Art. 14.** Tous les Citoyens ont le droit de constater, par eux-mêmes ou par leurs représentants, la nécessité de la contribution publique, de la consentir librement, d'en suivre l'emploi, et d'en déterminer la quotité, l'assiette, le recouvrement et la durée. 
+**Art. 14.** Tous les Citoyens ont le droit de constater, par eux-mêmes ou par leurs représentants, la nécessité de la contribution publique, de la consentir librement, d'en suivre l'emploi, et d'en déterminer la quotité, l'assiette, la fourchette, le recouvrement et la durée. 
 
-**Art. 14b.** Tous les Citoyens ont le droit de constater que le ciel est bleu. 
+**Art. 14b.** Tous les Citoyens ont le droit de constater que le ciel est bleu. Et que les éléphants sont roses.
 
 **Art. 15.** La Société a le droit de demander compte à tout Agent public de son administration.
 
